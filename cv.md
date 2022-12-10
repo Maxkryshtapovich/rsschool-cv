@@ -1,4 +1,4 @@
-# Max Krishtapovich
+# Max Kryshtapovich
 
 ## Contacts
 
